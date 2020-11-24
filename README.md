@@ -7,13 +7,13 @@ Secondly, you should also ensure that the news portals you choose can provide yo
 
 Thirdly, you should also take care of the languages used by the news portals. If you are looking for a news portal designing company in India, it is important that it is proficient with different languages including English, French, German and Spanish. If you are planning to hire one of such a news portal designing company in India, you should consider how many years they have been operating in their field.
 
-If you are looking for a [news portal designing company in India](https://traffictail.com/news-portal-development-company/), you should be sure that it is reliable and trustworthy. Hence, it is important for you to ensure that they are not just a fly by night company that offers cheap news portals. You should also check with the BBB or other regulatory body to make sure that the service provider is reputable and trustworthy.
+If you are looking for a [website designing service in India](https://traffictail.com), you should be sure that it is reliable and trustworthy. Hence, it is important for you to ensure that they are not just a fly by night company that offers cheap news portals. You should also check with the BBB or other regulatory body to make sure that the service provider is reputable and trustworthy.
 
 You should also consider the kind of technology that is used to create your news portals. There are a number of people who prefer to create news portals using Flash based technology while there are others who prefer to create their own web based news portals using a Java-based platform.
 
 In addition to these, you should also enquire about their search engine optimization services. It is important for you to make sure that they have a team of skilled SEO experts on its payroll so that your website gets the top rankings in all popular search engines.
 
-Thus, it is very important to select a good [news portals designing company in India](https://traffictail.com/news-portal-development-company/). This will help you have a website that is easily navigable and functional. In addition to this, it will also help you get better rankings on popular search engines such as Google, Yahoo, and Bing.
+Thus, it is very important to select a good news portals designing company in India. This will help you have a website that is easily navigable and functional. In addition to this, it will also help you get better rankings on popular search engines such as Google, Yahoo, and Bing.
 
 To get the best results out of your news portal designing, you should also make sure that you are hiring an experienced company that offers a host of advanced features such as content management systems, XML sitemaps, meta tags, title tags, robots text, etc. These are just some of the features that you should look for when hiring a good news portal designing company in India.
 
